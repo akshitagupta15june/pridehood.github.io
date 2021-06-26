@@ -1,5 +1,7 @@
 ### Visit the website here https://pridehood.us/
 
+"PRIDEHOOD" is a platform for the LGBTQIA+ community. Feeling Sad and depressed, need to fight stigma? Pridehood is there to help you.
+
 ## Inspiration
 
 Learning to be yourself and dealing with other people’s perceptions of you can be hard for anyone. This process can be especially stressful or tough for students who are lesbian, gay, bisexual, or transgender (LGBTQ+). In fact, they can face unique issues when it comes to mental health. The discrimination LGBT students may face or the pressure they feel from their family or community, can put them at greater risk for emotional health struggles like depression, anxiety, substance abuse, and even suicide.

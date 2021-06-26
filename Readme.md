@@ -4,11 +4,10 @@
 
 Learning to be yourself and dealing with other people’s perceptions of you can be hard for anyone. This process can be especially stressful or tough for students who are lesbian, gay, bisexual, or transgender (LGBTQ+). In fact, they can face unique issues when it comes to mental health. The discrimination LGBT students may face or the pressure they feel from their family or community, can put them at greater risk for emotional health struggles like depression, anxiety, substance abuse, and even suicide.
 
-Overcoming Stigma
-
-LGBTQ+ individuals who are dealing with mental health conditions like depression may have to contend with even more stigma because of discrimination or misunderstandings related to their sexual orientation. Having to deal with the additional stigma can worsen mental health conditions.
 
 ## What it does
+
+Overcoming Stigma
 
 LGBTQ+ individuals who are dealing with mental health conditions like depression may have to contend with even more stigma because of discrimination or misunderstandings related to their sexual orientation, having to deal with the additional stigma can worsen mental health conditions. So PRIDEHOOD can help you to overcome the stigma.
 
